@@ -1,0 +1,2 @@
+# Nemcina
+Nemcina precvicovanie
